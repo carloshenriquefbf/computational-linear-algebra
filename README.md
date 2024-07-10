@@ -11,6 +11,4 @@ Mikaela Rikberg Alves DRE 119106107
 
 Nycolas Silva Felix DRE 121054887
 
-Pedro Elias Gonçalves Antonio DRE 119132352
-
 Thiago Moutinho de Carvalho Maksoud DRE 119048139
